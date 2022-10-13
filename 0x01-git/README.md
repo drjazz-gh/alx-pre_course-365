@@ -1,1 +1,1 @@
-my third read me file
+im a newbie take me slow
